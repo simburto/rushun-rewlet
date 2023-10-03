@@ -1,2 +1,2 @@
 # rushun rewlet
- drsehfjcyctygkf
+ pls run wiht admin for epci fun!!11
