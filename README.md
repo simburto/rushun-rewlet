@@ -1,2 +1,2 @@
 # rushun rewlet
- drsehfjcyctygkf
+ run with admin pls
